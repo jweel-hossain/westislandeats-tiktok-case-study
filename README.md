@@ -85,6 +85,6 @@ As a Social Media Growth & Strategy Assistant, I handled:
 
 I help businesses grow their TikTok & Instagram pages with professional strategy, branding, and content planning.
 
-This case study is based on the TikTok page: https://www.tiktok.com/@westislandeats?_r=1&_t=ZS-95orc84vK11
+This case study is based on the TikTok page:https://www.tiktok.com/@westislandeats
 
 Available on Fiverr.https://www.fiverr.com/@jweel_dataentry
