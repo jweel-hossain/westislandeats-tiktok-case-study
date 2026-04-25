@@ -81,13 +81,10 @@ As a Social Media Growth & Strategy Assistant, I handled:
 - Audience Targeting  
 - Viral Content Structuring  
 
-## 📌 Note
-
-This is a **strategy + optimization case study** designed to demonstrate social media growth expertise for food niche brands.
-
-
 ## 💼 Want Similar Growth?
 
 I help businesses grow their TikTok & Instagram pages with professional strategy, branding, and content planning.
+
+This case study is based on the TikTok page: https://www.tiktok.com/@westislandeats?_r=1&_t=ZS-95orc84vK11
 
 Available on Fiverr.https://www.fiverr.com/@jweel_dataentry
